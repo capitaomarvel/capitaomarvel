@@ -12,5 +12,4 @@ _utilizo esse espaço para minha organização e compartilhamenmto dos meus proj
 
 claraoliveiradasilva53@gmail.com
 
-
 [](https://tenor.com/pt-BR/view/cats-gif-24695538)
